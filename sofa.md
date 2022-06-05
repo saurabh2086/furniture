@@ -13,11 +13,13 @@
 ## [Hansford L Shaped Sofa](https://www.bedandbasics.sg/hansford-l-shaped-sofa.html)
 
 #[IUIGA]
-###[Yolanda Solid Wood 3 Seater Corner Sofa](https://www.iuiga.com/Furniture/Living-Room/Sofas/Yolanda-Solid-Wood-3-Seater-Corner-Sofa-4571-9964.html)
+## [Yolanda Solid Wood 3 Seater Corner Sofa](https://www.iuiga.com/Furniture/Living-Room/Sofas/Yolanda-Solid-Wood-3-Seater-Corner-Sofa-4571-9964.html)
 
 # Crate&Barrel
 ![crateandbarrel](https://cb.scene7.com/is/image/Crate/Hague2LAChsSectIvorySOSSS22/$web_pdp_main_carousel_high$/220505165916/hague-2-piece-left-arm-chaise-mid-century-sectional.jpg)
 ## [Hague Mid-Century 2-Piece Left-Arm Chaise Sectional](https://www.crateandbarrel.com/hague-mid-century-2-piece-left-arm-chaise-sectional/s488918)
+![cnb](https://cb.scene7.com/is/image/Crate/Pacific2StLASfRAChsBCSOSSS21_3D_1x1/$web_pdp_main_carousel_high$/210507124427/pacific-2-piece-chaise-sectional-with-wood-legs.jpg)
+## [Pacific 2-Piece Chaise Sectional with Wood Legs](https://www.crateandbarrel.com/pacific-2-piece-chaise-sectional-with-wood-legs/s297374)
 
 
 
