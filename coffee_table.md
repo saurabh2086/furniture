@@ -17,6 +17,9 @@
 | width | 110cm |
 | ----- | ----- |
 | Depth | 55cm |
-|------ | ---- |
 | height | 41.50cm |
+##[Heidi Coffee Table](https://www.fortytwo.sg/living-room/coffee-table/heidi-coffee-table.html)
+
+![f](https://www.fortytwo.sg/media/catalog/product/cache/1/image/600x570/040ec09b1e35df139433887a97daa66f/f/3/f311te.jpg)
+## [Marigold Coffee Table](https://www.fortytwo.sg/living-room/coffee-table/marigold-coffee-table.html)
 
