@@ -5,7 +5,11 @@
 
 # Hipvan
 ![hipvan](https://hipvan-images-production.imgix.net/product-images/4ea48b59-908c-4ad8-bdd7-9c7172156424/Helga--Duster-L-Shape-Sofa--Almond-(Fabric)-14.png?fm=jpg&auto=format%2Ccompress&cs=srgb&ar=1%3A1&fit=fill&bg=ffffff&ixlib=react-9.2.0)
-![h](https://hiptruck-files.imgix.net/cms-files/65286b60-e770-40e1-85e8-03335eb4f086/Sofa-Dimensions.png?auto=format%2Ccompress&fm=jpg&cs=srgb&ixlib=react-9.2.0&w=1678)
+
+|Description|Measurement|
+| ---------- | -------- |
+| Overall | W280 D160 H82cm |
+| Leg height | 19 cm |
 ## [Duster L-Shaped Sofa - Almond (Fabric)](https://www.hipvan.com/products/duster-l-shaped-sofa-almond-fabric)
 
 # Bed and basics
@@ -28,7 +32,9 @@
 
 # Prestige Affairs
 ![pa](https://cdn.shopify.com/s/files/1/0298/1577/products/Natalia_RHF_LShape_WhiteGranite_Sofa_Shopify_1_1050pxX800px_150dpi_800x800.jpg?v=1640585728)
-|Dimention|W281cm x D101/177cm x H88cm|
-|Seat depth|62/138cm|
-|Seat width| 227cm
+| Description | Measurement |
+| ----------- | ----------- |
+| Dimention | W281cm x D101/177cm x H88cm |
+| Seat depth | 62/138cm |
+| Seat width | 227cm |
 ## [Natalia LShape White Granite](https://www.prestige-affairs.com/collections/sofa-loveseats/products/natalia-right-facing-l-shape-sofa-white-granite?variant=43075738796283)
