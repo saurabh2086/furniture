@@ -15,6 +15,8 @@
 # Forty Two
 ![f](https://www.fortytwo.sg/media/catalog/product/cache/1/image/600x286/040ec09b1e35df139433887a97daa66f/3/m/3m-115.jpg)
 | width | 110cm |
+| ----- | ----- |
 | Depth | 55cm |
+|------ | ---- |
 | height | 41.50cm |
 
