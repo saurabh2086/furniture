@@ -22,5 +22,6 @@
 ![cnb](https://cb.scene7.com/is/image/Crate/Pacific2StLASfRAChsBCSOSSS21_3D_1x1/$web_pdp_main_carousel_high$/210507124427/pacific-2-piece-chaise-sectional-with-wood-legs.jpg)
 ## [Pacific 2-Piece Chaise Sectional with Wood Legs](https://www.crateandbarrel.com/pacific-2-piece-chaise-sectional-with-wood-legs/s297374)
 
-
-
+# Prestige Affairs
+![pa](https://cdn.shopify.com/s/files/1/0298/1577/products/Natalia_RHF_LShape_WhiteGranite_Sofa_Shopify_1_1050pxX800px_150dpi_800x800.jpg?v=1640585728)
+## [Natalia LShape White Granite](https://cdn.shopify.com/s/files/1/0298/1577/products/Natalia_RHF_LShape_WhiteGranite_Sofa_Shopify_1_1050pxX800px_150dpi_800x800.jpg?v=1640585728)
