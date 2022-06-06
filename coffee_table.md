@@ -7,5 +7,14 @@
 ![c](https://img.castlery.sg/products/images/192417/large_x2/cupid-base.jpg?1590987679)
 ## [Cupid Coffee Table](https://www.castlery.com/sg/products/cupid-coffee-table)
 
+# Bed abd Basics
+![b](https://cdn.bedandbasics.sg/media/catalog/product/cache/image/700x500/8dfaea894a221b45920cee25b236c3fe/l/e/levin-coffee-table-cover-1.jpg)
+![b](https://cdn.bedandbasics.sg/media/catalog/product/cache/image/700x500/8dfaea894a221b45920cee25b236c3fe/l/e/levin-coffee-table-cover-6.jpg)
+## [Levin Coffee Table](https://www.bedandbasics.sg/furniture/living-room/coffee-tables/levin-coffee-table.html)
 
+# Forty Two
+![f](https://www.fortytwo.sg/media/catalog/product/cache/1/image/600x286/040ec09b1e35df139433887a97daa66f/3/m/3m-115.jpg)
+| width | 110cm |
+| Depth | 55cm |
+| height | 41.50cm |
 
