@@ -7,3 +7,12 @@
 ![c](https://img.castlery.sg/products/images/194860/large_x2/Strato-Dining-Table-Walnut-150cm-Dim.jpg?1631758296)
 ## [Strato Dining Table Walnut](https://www.castlery.com/sg/products/strato-walnut-dining-table)
 
+# Bed and basics
+![b](https://cdn.bedandbasics.sg/media/catalog/product/cache/image/8dfaea894a221b45920cee25b236c3fe/o/d/odette-solid-wood-dining-table-only-cover-1.jpg)
+![b](https://cdn.bedandbasics.sg/media/catalog/product/cache/image/8dfaea894a221b45920cee25b236c3fe/o/d/odette-solid-wood-dining-table-only-cover-4.jpg)
+## [Odette Solid Wood Dining Table Only](https://www.bedandbasics.sg/furniture/dining-room/dining-tables/odette-solid-wood-dining-table-only.html)
+
+![b](https://cdn.bedandbasics.sg/media/catalog/product/cache/image/8dfaea894a221b45920cee25b236c3fe/e/l/elie_dining_table-5.jpg)
+![b](https://cdn.bedandbasics.sg/media/catalog/product/cache/image/8dfaea894a221b45920cee25b236c3fe/e/l/elie_dining_table-cover_dimensions.jpg)
+## [Elie Extendable Dining Table](https://www.bedandbasics.sg/furniture/dining-room/dining-tables/elie-extendable-dining-table.html)
+
