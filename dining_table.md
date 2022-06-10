@@ -7,6 +7,10 @@
 ![c](https://img.castlery.sg/products/images/194860/large_x2/Strato-Dining-Table-Walnut-150cm-Dim.jpg?1631758296)
 ## [Strato Dining Table Walnut](https://www.castlery.com/sg/products/strato-walnut-dining-table)
 
+![c](https://res.cloudinary.com/castlery/image/private/w_1000,f_auto,q_auto/b_rgb:F3F3F3,c_fit/v1625414975/crusader/variants/PB-DR0152/Vincent-Dining-Table-Walnut-with-4-Joshua-Chairs-Lifestyle-Crop.jpg)
+![c](https://img.castlery.sg/products/images/195107/large_x2/Vincent-Dining-Table-Walnut-150cm-Dim-SG.jpg?1641282803)
+## [Vincent Dining Table, Walnut](https://www.castlery.com/sg/products/vincent-dining-table)
+
 # Bed and basics
 ![b](https://cdn.bedandbasics.sg/media/catalog/product/cache/image/8dfaea894a221b45920cee25b236c3fe/o/d/odette-solid-wood-dining-table-only-cover-1.jpg)
 ![b](https://cdn.bedandbasics.sg/media/catalog/product/cache/image/8dfaea894a221b45920cee25b236c3fe/o/d/odette-solid-wood-dining-table-only-cover-4.jpg)
