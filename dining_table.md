@@ -16,3 +16,7 @@
 ![b](https://cdn.bedandbasics.sg/media/catalog/product/cache/image/8dfaea894a221b45920cee25b236c3fe/e/l/elie_dining_table-cover_dimensions.jpg)
 ## [Elie Extendable Dining Table](https://www.bedandbasics.sg/furniture/dining-room/dining-tables/elie-extendable-dining-table.html)
 
+# Comfy
+![c](https://cdn.shopify.com/s/files/1/0078/6828/4979/products/emerson-black-wood-dining-table-dining-room.jpg?v=1596839203)
+## [Emerson Dining Table](https://comfy.sg/collections/dining-tables/products/emerson-dining-table?utm_source=fb&utm_medium=dt&utm_campaign=28-47&fbclid=IwAR03DU9_iaGSOuM7zJBzO7SgRElZAHRYt8AjzyCfINUUQdQFiKCSM05lAbc)
+
